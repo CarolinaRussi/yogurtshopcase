@@ -1,5 +1,7 @@
-# yogurtshopcase
-YOGURT SHOP CASE - REFERÊNCIAS
+# OS ASSASSINATOS NA LOJA DE IOGURTES
+Canal Colecionador de Ossos
+
+# Fontes e Referências da matéria:
 
 https://en.wikipedia.org/wiki/1991_Austin_yogurt_shop_killings
 
