@@ -1,4 +1,4 @@
-# OS ASSASSINATOS NA LOJA DE IOGURTES
+# Os Assassinatos na Loja de Iogurtes
 Canal Colecionador de Ossos
 
 # Fontes e Referências da matéria:
